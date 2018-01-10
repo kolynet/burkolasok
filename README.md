@@ -1,2 +1,0 @@
-# burkolasok.github.io
-Burkolasok
